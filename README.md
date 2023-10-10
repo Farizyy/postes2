@@ -78,3 +78,11 @@ Jika Keluar dari mode admin
 
 
 
+![Postes 2 (2)](https://github.com/Farizyy/postes2/assets/144855789/1393a643-8aff-4c93-81c8-4d5508eb1b06)
+
+
+
+
+
+
+
